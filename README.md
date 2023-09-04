@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yonas55
-- 👀 I’m interested in technology and innovation.
-- 🌱 I’m currently learning telecommunications, Hvac.
+- 👀 I’m interested in technology, computer and innovation.
+- 🌱 I’m currently learning telecommunications, computer, and Hvac.
 - 💞️ I’m looking to collaborate on business, and entrepreneurship.
 - 📫 How to reach me, Email:yonastadele643@gmail.com
 
